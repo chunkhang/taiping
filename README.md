@@ -1,5 +1,11 @@
 # Taiping
 
+- [Day 1](#day-1-monday)
+- [Day 2](#day-2-tuesday)
+- [Day 3](#day-3-wednesday)
+
+---
+
 ### Day 1: Monday
 
 **9.00 am**
