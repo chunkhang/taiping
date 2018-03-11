@@ -22,7 +22,7 @@
 - Lunch at [Larung Matang Food Court](http://www.j2kfm.com/taiping-char-kuey-teow-fishball-larut-matang-food-court/)
 
 **3.00 pm**
-- Check in to hostel
+- Check in to [Sojourn Beds & Cafe](https://www.tripadvisor.com.my/Hotel_Review-g670111-d7203841-Reviews-Sojourn_Beds_Cafe-Taiping_Larut_Matang_dan_Selama_District_Perak.html)
 
 **4.30 pm**
 - Visit [Charcoal Factory](https://www.tripadvisor.com.my/Attraction_Review-g670111-d9681055-Reviews-Kuala_Sepetang_Charcoal_Factory-Taiping_Larut_Matang_dan_Selama_District_Perak.html)
@@ -65,6 +65,9 @@
 
 ### Day 3: Wednesday
 
+**8.30 am**
+- Check out from hostel
+
 **9.00 am**
 - Breakfast at [Lian Thong Restaurant](http://www.eddyrushfatboy.asia/2016/02/lian-thong-restaurant-taiping.html)
 
@@ -75,12 +78,9 @@
 - Lunch at [Yut Sun Restaurant](http://www.j2kfm.com/taiping-food-yut-sun-hainanese/)
 
 **1.30 pm**
-- Check out from hostel
-
-**2.00 pm**
 - Visit [Biskut Tupai Emas](http://tastyornot.blogspot.my/2011/07/biskut-tupai-emas-taiping-perak-taiping.html)
 
-**2.30 pm**
+**2.00 pm**
 - Visit [Perak Museum](http://www.jmm.gov.my/en/museum/perak-museum)
 
 **4.00 pm**
